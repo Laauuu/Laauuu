@@ -1,5 +1,6 @@
 ### Lau
-[![Telegram](https://img.shields.io/badge/Telegram-Contact-blue&?link=https://t.me/NTBBloodbath&logo=Telegram&style=for-the-badge)](https://t.me/Lauywe)
+
+I'm Lau and I'm happy
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
